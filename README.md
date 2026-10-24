@@ -1,1 +1,0 @@
-my proposal to her 
